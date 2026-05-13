@@ -1,4 +1,4 @@
-# 
+# custom Sejda PDF for PC | Sejda PDF for Windows Addon | OCR + page-management is the best Sejda PDF for PC | Sejda PDF for Windows addon, featuring OCR and page-management.
 
 
 
